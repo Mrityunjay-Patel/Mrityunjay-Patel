@@ -76,7 +76,7 @@
 Mrityunjay-Patel
 
 📧 Email:
-[mrityunjaypatel89@gmail.com]
+[mrityunjaypatel51@gmail.com]
 
 ---
 
